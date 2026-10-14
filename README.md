@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CAGJ870215HBCZRL03
+CAGJ870215HBCZRL03
